@@ -6,6 +6,13 @@ Coins.Game is an innovative online casino and gaming platform that combines cryp
 *   **hellagood**: Activate this code for a **100% bonus** on your next payment and **100 free spins** for slots.
 *   **hellacoin**: New players can redeem this code to get a **matched deposit bonus** and an additional **100 free spins**.
 
+## Coins.Game Promo Codes 2025
+| Coins.Game Offer | Promo Code    | Details    |
+| :---:   | :---: | :---: |
+| 🎁 Welcome Bonus | HELLA   | Get 100% Deposit Bonus and 150 Free Spins   |
+| 💸 Full no deposit bonus | HELLA   | Get 150 free spins after registration   |
+| 🤑 Slot Bonus | HELLA   | Get 150 free spins on the Fruit Million slot   |
+
 ![Coins_Game_Promo](https://github.com/user-attachments/assets/5c4dfe4a-d799-44ef-a7dc-04378b6887dd)
 
 ## What is the Coins.Game Promo Code?
